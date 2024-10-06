@@ -3,7 +3,7 @@ Salutationsss!!!!
 Pls call me Sharko 
 She/Her
 
-IF YK/LIKE JAZMIN BEAN(a music artist) HII I LOVE JAZMIN BEAN ASWELL‼️‼️
+IF LOVE JAZMIN BEAN(a music artist) HII I LOVE JAZMIN BEAN ASWELL‼️‼️
 
 Animatic my belovedghegwrhgwerjwer😻
 
