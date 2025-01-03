@@ -14,7 +14,6 @@ Animatic my belovedghegwrhgwerjwer😻
 more info ig👹👹
 
 https://greatwhiteshark.straw.page
-https://en.pronouns.page/@Gr8white_Sharko
 
 </p>
 
