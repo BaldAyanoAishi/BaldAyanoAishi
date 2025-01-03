@@ -1,4 +1,7 @@
-<h>Salutationsss!!!!</h>
+<html>
+<body>
+
+<h1>Salutationsss!!!!</h1>
 
 Pls call me Sharko 
 She/Her
@@ -10,3 +13,6 @@ Animatic my belovedghegwrhgwerjwer😻
 
 more info ig👹👹
 https://greatwhiteshark.straw.page
+
+</body>
+</html>
