@@ -5,7 +5,9 @@
 
 <p>
 Pls call me Sharko
-She/Her
+
+
+pronouns: She/Her
 
 IF U LOVE JAZMIN BEAN(a music artist) HII I LOVE JAZMIN BEAN ASWELL‼️‼️
 
