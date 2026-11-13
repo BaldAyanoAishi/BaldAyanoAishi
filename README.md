@@ -16,7 +16,7 @@ Animatic my belovedghegwrhgwerjwer😻
 I love tord eddsworld ayayaya😼
 
 more info ig👹👹
-<b>https://greatwhiteshark.straw.page</b>
+<b>https://greatwhitesharkooo.straw.page)</b>
 
 </p>
 
